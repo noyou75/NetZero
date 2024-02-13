@@ -6,7 +6,7 @@
 
 ## Contact info
 
-- **Email:** mmastrangelo1120@gmail.com
+- **Email:** mathiassevenfold217@gmail.com
 
 ## Environment
 
